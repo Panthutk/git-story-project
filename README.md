@@ -1,2 +1,2 @@
 Once upon a time, in a land full of bugs
-There is the dude name Panthuk
+SomTamKaiYang is the best
