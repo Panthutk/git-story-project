@@ -1,2 +1,2 @@
 Once upon a time, in a land full of bugs
-SomTamKaiYang is the best
+Kitasan Black is the best
